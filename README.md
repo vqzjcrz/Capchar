@@ -1,1 +1,1 @@
-Practice website https://vqzjcrz.github.io/Capchar/
+Practice website
